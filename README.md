@@ -1,2 +1,2 @@
-# hjchoi28.github.io
+# hwajungch.github.io
 Personal Portfolio
